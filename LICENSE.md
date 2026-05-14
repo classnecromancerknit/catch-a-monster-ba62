@@ -1,4 +1,4 @@
-#  
+#  new Scripts for catch a monster offers the most advanced catch a monster Script, with god mode and auto-upgrade. Perfect for dominating any match.
 
 
 
